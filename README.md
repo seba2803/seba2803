@@ -9,7 +9,7 @@ Actualmente me destaco haciendo aplicaciones web🧑‍💻, comsumiendo API res
 
 # ¿A donde apunto?
 
-Apunto hacia lo mas lejos que pueda llegar🚀, aprendiendo, practicando y llegar a deslumbrar con todas mis habilidades y proyctos que realizo y seguiré desarrollando🐱‍🏍, porque me apaciona el poder crear cosas que todo el mundo pueda ver, satisfacer necesidades mediante código y mucho mas!!
+Apunto hacia lo mas lejos que pueda llegar🚀, aprendiendo, practicando y llegar a deslumbrar con todas mis habilidades y proyectos que realizo y seguiré desarrollando💫, porque me apaciona el poder crear cosas que todo el mundo pueda ver, satisfacer necesidades mediante código y mucho mas!!
 
 # ¿Que tecnologias uso?
 
